@@ -1,1 +1,1 @@
-# healing-touch-madison
+# Healing Touch Madison
